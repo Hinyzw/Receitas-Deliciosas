@@ -1,1 +1,1 @@
-https://hinyzw.github.io/Receitas-Deliciosas/
+https://TailyniDev.github.io/Receitas-Deliciosas/
